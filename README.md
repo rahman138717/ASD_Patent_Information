@@ -1,0 +1,1 @@
+# ASD_Patent_Information
